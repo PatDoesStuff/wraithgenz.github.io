@@ -1,1 +1,1 @@
-website files for wraithgenz website (beta) dedicated to wraithgenz.minehut.gg minecraft server and managed by the co-owner of the wraithgenz minecraft server (me know as PatGames111 in that comunity)
+website files for wraithgenz website (beta) dedicated to wraithgenz (ip currently migrating) minecraft server and managed by the co-owner of the wraithgenz minecraft server (me, known as PatGames111 in that comunity)
